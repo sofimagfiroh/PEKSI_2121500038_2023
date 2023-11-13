@@ -1,1 +1,10 @@
 # PEKSI_2121500038_2023
+sofi magfiroh_2121500038
+rofiatul hasanah_2121500016
+Fitriyah hidayati_2121500003
+Agmelita dwi jianika_2121500034
+zylal alfath_2121500025
+Muhammad Faisol_2121500006
+muhammad ainul yaqilsyah_2121500040
+dalilatul fitriyah_2121500027
+asrofil hidayaturrahman_2121500046
